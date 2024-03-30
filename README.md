@@ -1,1 +1,1 @@
- still learning  web torrent library, nothing serious(i don't prefer piracy) 
+ still learning  web torrent library, nothing serious(not a fan of piracy) 
